@@ -1,0 +1,63 @@
+# ¥ellow Bucks – ¥ellow Bucks - 8UP [Official Video]（feat. Yvng Patra）
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+食い切った弁当だけどまだ腹が減った
+今テーブル並べてく溢れるほどのCheddar
+腹パンでグータラしてる連中See you later
+こんなとこで満足するなんてありえねえな
+Let's get it ate up, ate up, ate up, ate up, ate
+up, ate up, ate up, I ate dat
+Ate up, ate up, ate up, ate up, ate up, ate up,
+ate up
+待ちくたびれたよ堪能したぜ冷めた弁当
+ご馳走様すぐにクソにしては流す便所
+母ちゃんが言ってたいつでも保て謙虚
+I know謙虚ではいるけどオレしねえ遠慮
+Let's get it ate up, hi hater
+座るテーブルちげぇな
+I'm makin' cheddar
+残飯なんて食わねえな
+一文無しのB-Boyも今じゃ億単位のプレイヤー
+オレは知ってるぜ残りもんに福なんてねえんだ
+食い終われば次に待ってるのはデザート
+甘い蜜はいつでもそう危険のアラート
+オレは慎重
+進めてくクッキング作る新曲
+でも食われないぜ喰う側のオレら肉食
+食い切った弁当だけどまだ腹が減った
+今テーブル並べてく溢れるほどのCheddar
+腹パンでグータラしてる連中See you later
+こんなとこで満足するなんてありえねえな
+Let's get it ate up, ate up, ate up, ate up, ate
+up, ate up, ate up, I ate dat
+Ate up, ate up, ate up, ate up, ate up, ate up,
+ate up
+クロムの上乗るダイヤ
+俺は脂乗った鮪
+止まれないが右に左揺らす
+だから無論 they call me pro
+苦労してないとか言っちゃえばなるね嘘
+(偽物が有象無象)
+だしな担うフッド
+乗るか？AMGであいつはサッと送る葬儀
+もういいっしょPops被れもういい
+ご馳走様ベッドの中で食べるご飯も美味しい
+I ate that, Hi hater
+増えるのはあと何人？
+んじゃ¥BとYP待ってた奴らってのは何人？
+門出祝うこのflowにヘッズは首を縦にYes, Yes
+キリがない欲望 欲しくなってきてるPlain jane
+漁った廃棄弁当 賞味期限が切れた冷麺
+替えなんて務まんねえ
+俺は今のシーンのMain man
+食い切った弁当だけどまだ腹が減った
+今テーブル並べてく溢れるほどのCheddar
+腹パンでグータラしてる連中See you later
+こんなとこで満足するなんてありえねえな
+Let's get it ate up, ate up, ate up, ate up, ate
+up, ate up, ate up, I ate dat
+Ate up, ate up, ate up, ate up, ate up, ate up,
+ate up
+```
